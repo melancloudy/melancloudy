@@ -6,7 +6,7 @@
 
 <div align="center">
 
-# [Wake up. You have a country to save.]
+# [Wake up, ▇▇▇. You have a country to save.]
 
 <p align="center"> 
 <img src="https://files.catbox.moe/lraopf.jpg" width="400"/>
