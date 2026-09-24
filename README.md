@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=melancloudy&label=viewers!!)
+![](https://komarev.com/ghpvc/?username=melancloudy&label=Stargazers)
 
 <p align="center">
   <img src="https://files.catbox.moe/uvje3g.jpg"  width="900"/>
