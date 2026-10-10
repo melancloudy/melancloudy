@@ -22,7 +22,20 @@
 
 <br>
 
-(. . . ?)<br><br><br>Ah. . . ! Hello! Welcome to our **Github**, whether you're a new face or a familiar one!<br><br><br>(A greeter, hm? They look. . . too blurry to make out. Like a face you can't remember.)<br>(Oh, right, they're still talking. . . better listen.)<br><br><br>We have, um, information here! If you'd like to know more about us!<br><sub>Stars. . . writing intros is hard. . .</sub><br>But. . . ! If you want to interact, I suggest sticking around to read this first!<br><br><br>(Well. . . If you clicked to come here, then surely you know your answer.)<br>⟡ (Hit the back button and leave.)<br>✦ __(Stay and read.)__<br><br><br>Okay, okay! The **Folders** are pretty self-explanatory. . . Theyre all labled, but I'll tell you about them just in case! ! !<br>Well, if you want me to, of course. . .<br><br><br>(Skip the guide?)<br>⟡ (Yes. Scroll down to "The File Drawer")<br>✦ **(Nope, guide please!)**<br><br><br>Okay. . . !<br>So, the **Information Card** is brief basics about us! A link to our **Pronouns.cc** is also included, which has more information if that's what you'd like to see! (Note: the link is also in **Links**, on the left side of the screen.<br>Then there's. . . the **Terms & Conditions**! Don't worry, it's just warnings and boundaries that we have, hehehe. Be sure to read the fine print~!<br>After that, we have. . . **Pony Principles**1 It's just boundaries specifically on Ponytown..<br>And finally? Just a **DNI List**-- though I will say it now, we only count direct talking as true interaction! Things such as cuddling in Ponytown and liking/following/reposting/reblogging/leaving kudos on our things (if we share our socials) are fine no matter who you are!<br>Oh, and to drop down each menu, just click the underlined text or the arrows!<br>Have fun! ^u^<br><br><br>(. . .)<br>(Continue?)<br>⟡ (No.)<br>✦ **(Yes.)**
+(. . . ?)<br><br><br>Ah. . . ! Hello! Welcome to our **Github**, whether you're a new face or a familiar one!<br><br><br>(A greeter, hm? They look. . . too blurry to make out. Like a face you can't remember.)<br>(Oh, right, they're still talking. . . better listen.)<br><br><br>We have, um, information here! If you'd like to know more about us!<br><sub>Stars. . . writing intros is hard. . .</sub><br>But. . . ! If you want to interact, I suggest sticking around to read this first!<br><br><br>(Well. . . If you clicked to come here, then surely you know your answer.)<br>⟡ (Hit the back button and leave.)<br>✦ __(Stay and read.)__<br><br><br>Okay, okay! The **Folders** are pretty self-explanatory. . . Theyre all labled, but I'll tell you about them just in case! ! !<br>Well, if you want me to, of course. . .<br><br><br>
+
+<p align="center">
+<details>
+  <summary><ins>(Skip the guide?)<br>⟡ (Yes. Scroll down to "The File Drawer")<br>✦ (Nope, guide please!)</ins></summary>
+</p>
+
+  <div align="center">
+    (. . . !)<br>(Success!)<br><br><br>Okay. . . !<br>So, the Information Card is brief basics about us! A link to our Pronouns.cc is also included, which has more information if that's what you'd like to see! (Note: the link is also in Links, on the left side of the screen.<br>Then there's. . . the Terms & Conditions! Don't worry, it's just warnings and boundaries that we have, hehehe. Be sure to read the fine print~!<br>After that, we have. . . Pony Principles It's just boundaries specifically on Ponytown..<br>And finally? Just a DNI List-- though I will say it now, we only count direct talking as true interaction! Things such as cuddling in Ponytown and liking/following/reposting/reblogging/leaving kudos on our things (if we share our socials) are fine no matter who you are!<br>Oh, and to drop down each menu, just click the underlined text or the arrows!<br>Have fun! ^u^
+  </div>
+</details>
+
+<br><br><br>(. . .)<br>(Continue?)<br>⟡ (No.)<br>✦ **(Yes.)**
+
 
 <br>
 
@@ -42,7 +55,7 @@
 </p>
 
   <div align="center">
-    (. . . !)<br>(Success! The file opened! ! !)<br><br><br>Name(s): Melancloudy, Cadaver<br>Sys Name: Stellarfall<br>Physical LVL: 17<br>Pronouns: Any/All (They/It/Star Preference)<br>Traumawillogenic Plural<br>Semi-Healing Darkshipper<br>Siffrin (ISAT), Coil (PHIGHTING!), and Shadow Milk Cookie (CRK) Kin<br>Isabeau (ISAT, Romantic) and First Milk Cookie (CRK, Familial) Yumeshipper<br>Sharing for both kins and yumes!<br>Music is a big part of who we are, please do not judge our tastes.<br>More information about us can be found in our <a href="https://pronouns.cc/@melancloudy.">Pronouns.cc</a>!<br>And while you're here, maybe check out our <a href="https://smc-cada.straw.page">Strawpage</a>?<br><br><br>(Close the Information Card File?)<br>⟡ (No.)<br>✦ (Yes!)
+    (. . . !)<br>(Success! The file opened! ! !)<br><br><br>Name(s): Melancloudy, Cadaver<br>Sys Name: Stellarfall<br>Physical LVL: 17<br>Pronouns: Any/All (They/It/Star Preference)<br>Traumawillogenic Plural<br>Profic/shipper, Anti-Contact<br>Siffrin (ISAT), Coil (PHIGHTING!), and Shadow Milk Cookie (CRK) Kin<br>Isabeau (ISAT, Romantic) and First Milk Cookie (CRK, Familial) Yumeshipper<br>Sharing for both kins and yumes!<br>Music is a big part of who we are, please do not judge our tastes.<br>More information about us can be found in our <a href="https://pronouns.cc/@melancloudy.">Pronouns.cc</a>!<br>And while you're here, maybe check out our <a href="https://smc-cada.straw.page">Strawpage</a>?<br><br><br>(Close the Information Card File?)<br>⟡ (No.)<br>✦ (Yes!)
   </div>
 </details>
 
