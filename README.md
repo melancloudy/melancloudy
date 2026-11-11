@@ -56,7 +56,7 @@
 </p>
 
   <div align="center">
-    (. . . !)<br>(Success! The file opened! ! !)<br><br><br>Name(s): Melancloudy, Cadaver<br>Sys Name: Stellarfall<br>Physical LVL: 17<br>Pronouns: Any/All (They/It/Star Preference)<br>Traumawillogenic Plural<br>Profic/shipper, Anti-Contact<br>Siffrin (ISAT), Coil (PHIGHTING!), and Shadow Milk Cookie (CRK) Kin<br>Isabeau (ISAT, Romantic) and First Milk Cookie (CRK, Familial) Yumeshipper<br>Sharing for both kins and yumes!<br>Music is a big part of who we are, please do not judge our tastes.<br>More information about us can be found in our <a href="https://pronouns.cc/@melancloudy.">Pronouns.cc</a>!<br>And while you're here, maybe check out our <a href="https://smc-cada.straw.page">Strawpage</a>?<br><br><br>(Close the Information Card File?)<br>⟡ (No.)<br>✦ (Yes!)
+    (. . . !)<br>(Success! The file opened! ! !)<br><br><br>Name(s): Melancloudy, Cadaver<br>Sys Name: Stellarfall<br>Physical LVL: 17<br>Pronouns: Any/All (They/It/Star Preference)<br>Nunyagenic Plural<br>Profic, Anti-Contact (!!!MIND YOUR OWN DNI!!!)<br>Siffrin (ISAT), Coil (PHIGHTING!), and Shadow Milk Cookie (CRK) Kin<br>Isabeau (ISAT, Romantic) and First Milk Cookie (CRK, Familial) Yumeshipper<br>Sharing for both kins and yumes!<br>Music is a big part of who we are, please do not judge our tastes.<br>More information about us can be found in our <a href="https://pronouns.cc/@melancloudy.">Pronouns.cc</a>!<br>And while you're here, maybe check out our <a href="https://smc-cada.straw.page">Strawpage</a>?<br><br><br>(Close the Information Card File?)<br>⟡ (No.)<br>✦ (Yes!)
   </div>
 </details>
 
