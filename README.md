@@ -56,7 +56,7 @@
 </p>
 
   <div align="center">
-    (. . . !)<br>(Success! The file opened! ! !)<br><br><br>Name(s): Melancloudy, Cadaver<br>Sys Name: Stellarfall<br>Physical LVL: 17<br>Pronouns: Any/All (They/It/Star Preference)<br>Nunyagenic Plural<br>Profic, Anti-Contact (!!!MIND YOUR OWN DNI!!!)<br>Siffrin (ISAT), Coil (PHIGHTING!), and Shadow Milk Cookie (CRK) Kin<br>Isabeau (ISAT, Romantic) and First Milk Cookie (CRK, Familial) Yumeshipper<br>Sharing for both kins and yumes!<br>Music is a big part of who we are, please do not judge our tastes.<br>More information about us can be found in our <a href="https://pronouns.cc/@melancloudy.">Pronouns.cc</a>!<br>And while you're here, maybe check out our <a href="https://smc-cada.straw.page">Strawpage</a>?<br><br><br>(Close the Information Card File?)<br>⟡ (No.)<br>✦ (Yes!)
+    (. . . !)<br>(Success! The file opened! ! !)<br><br><br>Name(s): Melancloudy, Cadaveriosity<br>Bodily Age: 17<br>Pronouns: Any/All (They/It/Star Preference)<br>Non-OSDDID Plural<br>Profic, Anti-Contact (!!!MIND YOUR OWN DNI!!!)<br>No we do not care about the Maggot situation or whatever 😭<br>Music is a big part of who we are, please do not judge our tastes.<br>More information about us can be found in our <a href="https://pronouns.cc/@melancloudy.">Pronouns.cc</a>!<br>And while you're here, maybe check out our <a href="https://smc-cada.straw.page">Strawpage</a> and <a href="https://melancloudy.atabook.org">Atabook</a>?<br><br><br>(Close the Information Card File?)<br>⟡ (No.)<br>✦ (Yes!)
   </div>
 </details>
 
@@ -84,7 +84,7 @@
 <summary><ins>(Open the DNI File?)<br>⟡ (No.)<br>✦ (Yes!)</ins></summary>
 
 <div align="center">
-  (. . . !)<br>(Success! The file opened! ! !)<br><br><br>Racists, Homophobes, Transphobes, etc.<br>Anyone 19+ or 15-!<br>Fakeclaimers<br>Anti pro/dark/comshippers (Only ones who lash out over it!)<br>Antifurries, antitherians, etc.<br>Hazbin Hotel/Helluva Boss fans (I just dont want to talk about those shows, sorry)<br>Antiendos, antiwillos, etc.<br>People who talk about politics a lot<br>Pro-contact Pedophiles, zoophiles, etc.<br>People who overly sexualize non-sexual characters for no reason<br><br><br>(Close the DNI File?)<br>⟡ (No.)<br>✦ (Yes!)
+  (. . . !)<br>(Success! The file opened! ! !)<br><br><br>Racists, Homophobes, Transphobes, etc.<br>Anyone 19+ or 15-<br>Fakeclaimers<br>Antifurries, antitherians, etc.<br>Antiendos, antiwillos, etc.<br>People who only talk about politics<br>Pro-contact Pedophiles, zoophiles, etc.<br>People who overly sexualize non-sexual characters for no reason<br><br><br>(Close the DNI File?)<br>⟡ (No.)<br>✦ (Yes!)
 </div>
 </details>
 <br>
