@@ -56,7 +56,7 @@
 </p>
 
   <div align="center">
-    (. . . !)<br>(Success! The file opened! ! !)<br><br><br>Name(s): Melancloudy, Cadaveriosity<br>Bodily Age: 17<br>Pronouns: Any/All (They/It/Star Preference)<br>Non-OSDDID Plural<br>Profic, Anti-Contact (!!!MIND YOUR OWN DNI!!!)<br>If you wanna yell at us over it or learn about why we're like this, please go to our <a href="https://sifspr0ficexplanation.straw.page">second Strawpage</a><br>Music is a big part of who we are, please do not judge our tastes.<br>More information about us can be found in our <a href="https://pronouns.cc/@melancloudy.">Pronouns.cc</a>!<br>And while you're here, maybe check out our <a href="https://smc-cada.straw.page">Strawpage</a> and <a href="https://melancloudy.atabook.org">Atabook</a>?<br><br><br>(Close the Information Card File?)<br>⟡ (No.)<br>✦ (Yes!)
+    (. . . !)<br>(Success! The file opened! ! !)<br><br><br>Name(s): Melancloudy, Cadaveriosity<br>Bodily Age: 17<br>Pronouns: Any/All (They/It/Star Preference)<br>Non-OSDDID Plural<br>Profic, Anti-Contact (!!!MIND YOUR OWN DNI!!!)<br>If you wanna yell at us over it or learn about why we're like this, please go to our <a href="https://sifspr0ficexplanation.straw.page">second Strawpage</a><br>Music is a big part of who we are, please do not judge our tastes.<br>More information about us can be found in our <a href="https://pronouns.cc/@melancloudy.">Pronouns.cc</a>!<br>And while you're here, maybe check out our <a href="https://smc-cada.straw.page">main Strawpage</a> and <a href="https://melancloudy.atabook.org">Atabook</a>?<br><br><br>(Close the Information Card File?)<br>⟡ (No.)<br>✦ (Yes!)
   </div>
 </details>
 
